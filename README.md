@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋 I dont know whay im  doing but I like so much
 
 <!--
 **TheSrJohns/TheSrJohns** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
